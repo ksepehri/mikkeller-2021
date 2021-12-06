@@ -1,4 +1,4 @@
-# The Great Mikkeller Advent Calendar Mikkeller Advent 2021
+# The Great Mikkeller Advent Calendar 2021
 
 1. Sally Citra - I thought it said “Salty Citra” and was confused that it wasn’t sour. It was good, nice flavor. K 6/10. R 4/10
 
